@@ -1,5 +1,8 @@
 <div align="center">
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Hubot+Sans&duration=4000&pause=1000&color=8CA951&center=true&vCenter=true&random=true&width=435&lines=%E2%A4%B7+%E3%82%9BThe+snow+falls%2C+but+so+do+friendships.+%E3%82%9B+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Hubot+Sans&duration=4000&pause=1000&color=A98336&center=true&vCenter=true&random=true&width=435&lines=%E2%A4%B7+%E3%82%9BIt's+all+yours..+%E3%82%9B+)](https://git.io/typing-svg)
+
 [![Hits](https://hits.sh/github.com/pupfies.svg?label=smile%20parrot.&color=c582fa&labelColor=573c3c)](https://hits.sh/github.com/pupfies/)
 
 ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489835051028971561/Untitled462_20260404115217.png?ex=69d1dc83&is=69d08b03&hm=330533e8a5878455646edfcbe03c308527e80841eee6f5431b0393ee02e362fc&)    ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489835050714533928/Untitled462_20260404115225.png?ex=69d1dc83&is=69d08b03&hm=5062fed5d6ce63081d4d42d6e57e82a37d80d21f01164382a91bb4dfdd6466ec&)
