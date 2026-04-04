@@ -9,14 +9,14 @@
 
 [![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1489837010503073862/Untitled463_20260404120005.png?ex=69d1de57&is=69d08cd7&hm=58806cee56a85703709318ec4ae1113720a533f4b8a96811d2ddef1e4d7030cb)](https://www.tumblr.com/donsiur/807417493587099648/something-something-about-me-thinking-about-this?source=share)
 
-![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833040095215728/Untitled461_20260404114427.png?ex=69d1daa4&is=69d08924&hm=bb76b5ff2fd517dee3a2fe87d014e302b825e04f9c0cfbbd6dc300e859c41e8e)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490010728025821284/Untitled6_20260404233024.png?ex=69d28020&is=69d12ea0&hm=ff287f1669d784d777d18f25cd672a9adfb13ba4a2aef8b1697c52b79f1eca24)
 
 ![N8uU30MvHFyXuEbd-ezgif com-cut](https://github.com/user-attachments/assets/9d03e49e-d83b-46ce-8b41-eeb7e826298f)
 
 
 [strawpage](https://rensonly.straw.page)   ⋆‧°𓏲ּ𝄢   [atabook](https://pupfies.atabook.org/)
 
-![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833040095215728/Untitled461_20260404114427.png?ex=69d1daa4&is=69d08924&hm=bb76b5ff2fd517dee3a2fe87d014e302b825e04f9c0cfbbd6dc300e859c41e8e)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490010728025821284/Untitled6_20260404233024.png?ex=69d28020&is=69d12ea0&hm=ff287f1669d784d777d18f25cd672a9adfb13ba4a2aef8b1697c52b79f1eca24)
 
 ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833937286201424/Tumblr_l_12373643924429.jpg?ex=69d1db7a&is=69d089fa&hm=d637fc14c95ced57696827a0c2e31f77b01da7501b295b50bbd29b46feacfc8e)![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489834438115459124/Tumblr_l_12450682751741.jpg?ex=69d1dbf1&is=69d08a71&hm=2fb774c01da3d3b1948b892631b135a1932680e88890b8f988b1177888f17c54)
 
