@@ -11,7 +11,7 @@
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490010728025821284/Untitled6_20260404233024.png?ex=69d28020&is=69d12ea0&hm=ff287f1669d784d777d18f25cd672a9adfb13ba4a2aef8b1697c52b79f1eca24)
 
-<img width="1030" height="795" alt="image" src="https://github.com/user-attachments/assets/920cc668-7aee-4a70-a95d-2e36d97a7dce" />
+[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490505068963692714/Untitled466_20260406081450.png?ex=69d44c84&is=69d2fb04&hm=8fdced01e79d135823b75fb92dae1544f029d5ad43e4b079c7656e8c6f43eb8a)](https://x.com/1urhearts/status/2040673638534545647?s=20)
 
 [strawpage](https://rensonly.straw.page)   ⋆‧°𓏲ּ𝄢   [atabook](https://pupfies.atabook.org/)
 
