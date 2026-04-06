@@ -5,17 +5,19 @@
 
 [![Hits](https://hits.sh/github.com/pupfies.svg?label=smile%20parrot.&color=c582fa&labelColor=573c3c)](https://hits.sh/github.com/pupfies/)
 
+
 ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489835051028971561/Untitled462_20260404115217.png?ex=69d1dc83&is=69d08b03&hm=330533e8a5878455646edfcbe03c308527e80841eee6f5431b0393ee02e362fc&)    ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489835050714533928/Untitled462_20260404115225.png?ex=69d1dc83&is=69d08b03&hm=5062fed5d6ce63081d4d42d6e57e82a37d80d21f01164382a91bb4dfdd6466ec&)
 
-[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1489837010503073862/Untitled463_20260404120005.png?ex=69d1de57&is=69d08cd7&hm=58806cee56a85703709318ec4ae1113720a533f4b8a96811d2ddef1e4d7030cb)](https://www.tumblr.com/donsiur/807417493587099648/something-something-about-me-thinking-about-this?source=share)
+[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490507406193725530/Untitled467_20260406082407.png?ex=69d44eb1&is=69d2fd31&hm=57c0d30e75f01cb4cea8f48c3e26e22cab6fa8b326bd9a784312f93d64870010)](https://www.tumblr.com/donsiur/807417493587099648/something-something-about-me-thinking-about-this?source=share)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490010728025821284/Untitled6_20260404233024.png?ex=69d28020&is=69d12ea0&hm=ff287f1669d784d777d18f25cd672a9adfb13ba4a2aef8b1697c52b79f1eca24)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490511610148556822/Untitled470_20260406084052.png?ex=69d4529c&is=69d3011c&hm=ae7b41a81eac9b9793203fcd1d555cdda533330f405e2c45a305036c33d3de66)
 
 [![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490505068963692714/Untitled466_20260406081450.png?ex=69d44c84&is=69d2fb04&hm=8fdced01e79d135823b75fb92dae1544f029d5ad43e4b079c7656e8c6f43eb8a)](https://x.com/1urhearts/status/2040673638534545647?s=20)
 
-[strawpage](https://rensonly.straw.page)   ⋆‧°𓏲ּ𝄢   [atabook](https://pupfies.atabook.org/)
+[strawpage](https://rensonly.straw.page) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [atabook](https://pupfies.atabook.org/)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490010728025821284/Untitled6_20260404233024.png?ex=69d28020&is=69d12ea0&hm=ff287f1669d784d777d18f25cd672a9adfb13ba4a2aef8b1697c52b79f1eca24)
+[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490509322256515112/Untitled469_20260406083149.png?ex=69d4507a&is=69d2fefa&hm=0cab645c23e96f74fad1e9307cb8455d0eda82fde0e4c2a8890166aa232f77da)](https://dividers-are-us.tumblr.com/post/792459290958053380/minimalist-celestial-dividers)
+
 
 ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833937286201424/Tumblr_l_12373643924429.jpg?ex=69d1db7a&is=69d089fa&hm=d637fc14c95ced57696827a0c2e31f77b01da7501b295b50bbd29b46feacfc8e)![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489834438115459124/Tumblr_l_12450682751741.jpg?ex=69d1dbf1&is=69d08a71&hm=2fb774c01da3d3b1948b892631b135a1932680e88890b8f988b1177888f17c54)![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490020637992026264/Tumblr_l_46175076445213.jpg?ex=69d2895b&is=69d137db&hm=d8cea85eb2bdce7caa489d9e5836c9674bd2d2689cdf7938ada377a16a5a67b9)![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490020644094742549/Tumblr_l_46152597380750.jpg?ex=69d2895c&is=69d137dc&hm=b8d9e757582b938f3469974479ac4efde77e3466216279cd9718fa493745233a)
 
