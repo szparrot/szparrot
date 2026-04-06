@@ -11,7 +11,7 @@
 
 [![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490505068963692714/Untitled466_20260406081450.png?ex=69d44c84&is=69d2fb04&hm=8fdced01e79d135823b75fb92dae1544f029d5ad43e4b079c7656e8c6f43eb8a)](https://x.com/1urhearts/status/2040673638534545647?s=20)
 
-[strawpage](https://rensonly.straw.page) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [atabook](https://pupfies.atabook.org/)
+[strawpage](https://rensonly.straw.page) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 [atabook](https://sparrot.atabook.org/)
 
 [![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490509322256515112/Untitled469_20260406083149.png?ex=69d4507a&is=69d2fefa&hm=0cab645c23e96f74fad1e9307cb8455d0eda82fde0e4c2a8890166aa232f77da)](https://dividers-are-us.tumblr.com/post/792459290958053380/minimalist-celestial-dividers)
 
