@@ -13,7 +13,6 @@
 
 <img width="1030" height="795" alt="image" src="https://github.com/user-attachments/assets/920cc668-7aee-4a70-a95d-2e36d97a7dce" />
 
-
 [strawpage](https://rensonly.straw.page)   ⋆‧°𓏲ּ𝄢   [atabook](https://pupfies.atabook.org/)
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490010728025821284/Untitled6_20260404233024.png?ex=69d28020&is=69d12ea0&hm=ff287f1669d784d777d18f25cd672a9adfb13ba4a2aef8b1697c52b79f1eca24)
