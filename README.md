@@ -21,7 +21,6 @@
 
 ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833937286201424/Tumblr_l_12373643924429.jpg?ex=69d1db7a&is=69d089fa&hm=d637fc14c95ced57696827a0c2e31f77b01da7501b295b50bbd29b46feacfc8e)![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489834438115459124/Tumblr_l_12450682751741.jpg?ex=69d1dbf1&is=69d08a71&hm=2fb774c01da3d3b1948b892631b135a1932680e88890b8f988b1177888f17c54)![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490020637992026264/Tumblr_l_46175076445213.jpg?ex=69d2895b&is=69d137db&hm=d8cea85eb2bdce7caa489d9e5836c9674bd2d2689cdf7938ada377a16a5a67b9)![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1490020644094742549/Tumblr_l_46152597380750.jpg?ex=69d2895c&is=69d137dc&hm=b8d9e757582b938f3469974479ac4efde77e3466216279cd9718fa493745233a)
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=4c00ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=0011ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
 
 </div>
